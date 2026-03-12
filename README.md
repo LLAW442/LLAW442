@@ -72,7 +72,7 @@ Token emission models and economic analysis.
 ## 📫 Connect With Me
 
 Twitter/X: https://x.com/lalalu8386 
-Research Blog: https://yourblog.com  
+Research Blog: https://medium.com/@LLAW442  
 Email: lawl49301@gmail.com
 
 
